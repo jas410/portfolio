@@ -63,7 +63,7 @@ I’m an IT professional looking to break into the tech field and grow my skills
 
 ---
 
-## 📬 Let’s Connect  
+## 📬 Let’s Connect!  
 **GitHub:** github.com/jas410  
 **LinkedIn:** [linkedin.com/in/jasmineadams410  ](https://www.linkedin.com/in/jasmine-adams-4a845420b/)
 
